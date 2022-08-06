@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rezablack0
 - 🙆‍♀️ my mom is my superhero
-- 🌱 lemes prennnnnnnnn gada ayanggg
+- 🌱 ayangku mana?
 - 💞️ yang cantik itu cewek bukan laki
 - 📫 tinggalkan komen
 
