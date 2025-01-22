@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @rezablack0
 - 🙆‍♀️ my mom is my superhero
-- 🌱 ayangku mana?
-- 💞️ yang cantik itu cewek bukan laki
 - 📫 tinggalkan komen
 
 <!---
